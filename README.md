@@ -1,6 +1,6 @@
 # Politique de Confidentialité - Smart Immo
 
-_Dernière mise à jour : [Date actuelle]_
+_Dernière mise à jour : [4 Mars 2025]
 
 ## Introduction
 
