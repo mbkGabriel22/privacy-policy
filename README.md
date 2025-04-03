@@ -87,7 +87,7 @@ Nous pouvons modifier cette politique de confidentialité de temps à autre. Les
 
 Si vous avez des questions concernant cette politique de confidentialité, veuillez nous contacter à :
 
-- Email : [info@smarttechd-rdc.com]
+- Email : [info@smarttech-rdc.com]
 - Adresse : [204 Kabinda, Q/Ngunda Lokombe,
 C/Lingwala , Kinshasa-RDC]
 
