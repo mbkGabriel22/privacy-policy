@@ -4,7 +4,7 @@ _Dernière mise à jour : 03.04.2025_
 
 ## Introduction
 
-Bienvenue dans la politique de confidentialité de Smart Immo. Notre politique de confidentialité est conçue pour vous aider à comprendre comment nous collectons, utilisons et protégeons vos informations personnelles.
+Bienvenue dans la politique de confidentialité de SmartImmo: Location. Notre politique de confidentialité est conçue pour vous aider à comprendre comment nous collectons, utilisons et protégeons vos informations personnelles.
 
 ## Collecte de données
 
